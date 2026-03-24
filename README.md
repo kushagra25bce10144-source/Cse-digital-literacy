@@ -6,3 +6,5 @@ important links :-
       •linkedin :- https://www.linkedin.com/in/kushagra-mall-39538a380?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 All work in this repository is my own. Screenshots are from my personal accounts.Reflections are written in my own words based on my learning experience.
+
+quiz link:- https://docs.google.com/forms/d/e/1FAIpQLScyLEdzQsbjsHG_rJfhViHKegjMmQ-duMj8-Mjh3uDD6JVDEw/viewform?usp=publish-editor
